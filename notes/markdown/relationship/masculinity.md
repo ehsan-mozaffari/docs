@@ -28,6 +28,7 @@ Being high value as a man to be successful specially with women.
 * Competition anxiety: Biggest fear is you in love with somebody else besides her. They try to lock you down by s3x.
 * She wants kids: Biggest factor to sleep with a guy
 * Always building: Business, Physique, Career, etc.
+* Men with pure agression
 
 
 ## Signs a woman is into you
