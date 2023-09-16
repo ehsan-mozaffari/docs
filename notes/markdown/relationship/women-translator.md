@@ -1,6 +1,6 @@
 # Women Translator
 
-You have to underestand what is the meaning behind the women words. A simple approach is to translate everything they say into opposite. Because they are always lying about 98% of all times and they always want you to see what is the meaning behind the sentence implicitly.
+You have to underestand what is the meaning behind the women words. A simple approach is to translate everything they say into opposite. Because they are always lying about 98% of all times and they always want you to see what is the meaning behind the sentence implicitly. Women never speak directly and they never mean what they say they always CAP and give you always a politically correct answers.
 
 ## Dictionary
 
@@ -23,7 +23,7 @@ You have to underestand what is the meaning behind the women words. A simple app
 | I have many guy friends                                            | Huge red flag when a girl doesn't have<br />female friends. There is a lot going on<br />underneth.                                                                                                               |
 | I just see the guys as my friends                                  | No friendship between male and female.<br />I smash them whenever I feel sad.                                                                                                                                     |
 | I am focusing on my career                                         | I want to increase my income and status<br />to give myself the option to get the best<br />I can get when I've done nothing to<br />made myself attractive to the very man<br />and now I feel entitled to have. |
-|                                                                    |                                                                                                                                                                                                                   |
+| I want confidence                                                  | I want you to dominate the relationship.<br />Is a polite way to say dominate me!                                                                                                                                 |
 |                                                                    |                                                                                                                                                                                                                   |
 |                                                                    |                                                                                                                                                                                                                   |
 |                                                                    |                                                                                                                                                                                                                   |
